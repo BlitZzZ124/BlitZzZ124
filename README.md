@@ -1,0 +1,5 @@
+- 👋 Hi, I’m BlitZ
+- 👀 ok
+- 🌱 jd
+- 💞️ tf is this
+- 📫 How to reach me? discord lol
